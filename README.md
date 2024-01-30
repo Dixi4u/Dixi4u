@@ -6,4 +6,4 @@ Estudiante de Software🗿
 <br>
 Fortnite FNCS ⛏
 <br>
-Overwatch 2 Player ⌚
+OW 2 Player ⌚
