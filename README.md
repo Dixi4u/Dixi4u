@@ -1,8 +1,8 @@
 <h1 style="color:DodgerBlue;">Dixi<h1>
 <br>
-Carry
+Carry🏇
 <br>
-Estudiante🗿
+Estudiante de Software🗿
 <br>
 Fortnite FNCS
 <br>
