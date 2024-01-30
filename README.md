@@ -4,5 +4,5 @@ Carry🏇
 <br>
 Estudiante de Software🗿
 <br>
-Fortnite FNCS⛏
+Fortnite FNCS ⛏
 <br>
